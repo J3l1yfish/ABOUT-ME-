@@ -4,6 +4,11 @@ FIRST OF ALL! i am a minor, so please treat me with respect. please dont talk to
 alright, now with that out of the way, 
 - DNI if i dont know who you are, i find that sorta intimidating. it makes me feel pressured and is kinda scary for me. thank you for understanding. ₊˚⊹ ᰔ
 
+- I LOVE JELLYFISH
+- I LOVE MUSHROOMS
+- I LOVE MY FRIENDS, FRIENDSHIP IS MAGIC!
+- I LOVE JESUS
+
 FANDOMS!! ٩(ˊᗜˋ*)و ♡
 
 - SKY COTL
